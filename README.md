@@ -1,5 +1,5 @@
 - **❄️🖤👻**
 
-- **💻**: vltchosting@gmail.com
+- **💻** = vltchosting@gmail.com
 
 - “I want to die in the same way.”
